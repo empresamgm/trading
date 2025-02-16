@@ -1,1 +1,1 @@
-Marvin, estou confuso
+qual estrategia vc está falando?
